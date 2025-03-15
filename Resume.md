@@ -1,5 +1,3 @@
-Resume - 
-
 Kushal Chowdary A S
 
 Overview
